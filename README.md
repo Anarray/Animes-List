@@ -1,5 +1,5 @@
 # Animes List :star2:
 
-### List your favorites animes for someone else reading :book:
+### List your favorite anime so someone else can read it :book:
 
 - Death Note
